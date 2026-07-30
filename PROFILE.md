@@ -1,1 +1,1 @@
-Welcome to my GitHub profile! Peggy McCoey
+Welcome to my GitHub profile!
